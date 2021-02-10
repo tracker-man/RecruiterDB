@@ -26,3 +26,12 @@ Sr. Technical Recruiter- Federal
 E-Talent Network  
 Direct: 703-687-6627 Ext.384  
 Email: terryd@etalentnetwork.com  
+
+### Mondo
+Angela Dehn  
+Phone: (202) 218-0061 Ext.380061  
+Email: angela.dehn@mondo.com  
+Website: mondo.com
+Address: 3000 Wilson Blvd # 320 Arlington VA 22201  
+
+
