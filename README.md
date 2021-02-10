@@ -27,11 +27,37 @@ E-Talent Network
 Direct: 703-687-6627 Ext.384  
 Email: terryd@etalentnetwork.com  
 
+Nicholas Johnson  
+Deputy Manager—Federal  
+E-Talent Network  
+http://etalentnetwork.com  
+Nicholasj@etalentnetwork.com  
+(703) 687-6627 Ext.307
+
 ### Mondo
 Angela Dehn  
 Phone: (202) 218-0061 Ext.380061  
 Email: angela.dehn@mondo.com  
 Website: mondo.com
 Address: 3000 Wilson Blvd # 320 Arlington VA 22201  
+
+
+### E-Solutions Inc
+Himanshu Srivastava  
+Ph:  (732) 357-3661  
+himanshu.s@e-solutionsinc.com   
+LinkedIn: https://www.linkedin.com/in/himanshu-s-5992b9141/  
+www.e-solutionsinc.com   
+San Jose, California 95113  
+
+
+### ITBrainiac, Inc.  
+Aiden Smith  
+Sr. IT Recruiter  
+Email : aiden@itbtalent.com  
+ITBrainiac, Inc.  
+http://www.itbrainiac.com/  
+Direct : 609-357-9398
+Princeton Forrestal Village, 116 Village Blvd. Suite # 200, Princeton, NJ 08540  
 
 
