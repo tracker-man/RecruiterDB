@@ -61,3 +61,10 @@ Direct : 609-357-9398
 Princeton Forrestal Village, 116 Village Blvd. Suite # 200, Princeton, NJ 08540  
 
 
+### Insigma Inc.
+Preeti Pandey  
+Insigma Inc. | 43490 Yukon Drive, Suite 102, Ashburn, Virginia 20147  
+Chantilly, VA, 20147  
+Phone: 703-344-9674 Ext. 172  
+Email: Preeti.pandey@us.insigmainc.com  
+
