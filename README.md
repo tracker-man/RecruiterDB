@@ -32,7 +32,7 @@ Deputy Manager—Federal
 E-Talent Network  
 http://etalentnetwork.com  
 Nicholasj@etalentnetwork.com  
-(703) 687-6627 Ext.307
+(703) 687-6627 Ext.307  
 
 ### Mondo
 Angela Dehn  
