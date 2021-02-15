@@ -9,7 +9,13 @@ U.S. Information Technologies
 JKeener@usinfotech.com  
 Chantilly, Virginia 20151    
 www.usinfotech.com   
-Office: 703-543-8800 ext 104   
+Office: 703-543-8800 ext 104
+
+### Harmonia Holdings Group LLC
+Aekta Jain  
+Technical Recruiter  
+Harmonia Holdings Group  
+571-599-8494
 
 ### Softworld, Inc.
 Andrew Jones  
