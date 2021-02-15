@@ -56,6 +56,14 @@ E-Talent Network
 Direct: 703-687-6627 Ext.384  
 Email: terryd@etalentnetwork.com  
 
+Patrice Morgan  
+E Talent Network  
+http://etalentnetwork.com  
+8251 Greensboro Drive Suite 250  
+McLean, VA  
+patricem@etalentnetwork.com  
+(703) 261-7028 Ext.241
+
 Nicholas Johnson  
 Deputy Manager—Federal  
 E-Talent Network  
