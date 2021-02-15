@@ -87,7 +87,7 @@ W: www.exarcainc.com
 
 ### Indotronix  
 Venky Malla  
-Specialist – Talent Acquisition
+Specialist – Talent Acquisition  
 Direct Number 585-532-7063  
 Office Number 845-473-1137 x 8063  
 Indotronix  
