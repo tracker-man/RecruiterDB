@@ -85,3 +85,12 @@ T: 469-484-6866
 E: vibhay.rana@exarcainc.com  
 W: www.exarcainc.com  
 
+### Indotronix  
+Venky Malla  
+Specialist – Talent Acquisition
+Direct Number +1 585-532-7063  
+Office Number  845-473-1137 x 8063  
+Indotronix  
+Talent Delivered.  | iic.com  
+Global Headquarters:  687 Lee Road, Suite 250, Rochester, NY 14606  
+USA • India • Canada  
