@@ -32,7 +32,17 @@ Deputy Manager—Federal
 E-Talent Network  
 http://etalentnetwork.com  
 Nicholasj@etalentnetwork.com  
-(703) 687-6627 Ext.307  
+703-687-6627 Ext.307  
+
+Hazel Smith  
+E Talent Network  
+http://etalentnetwork.com  
+8251 Greensboro Drive Suite 250
+Mclean,VA  
+hazels@etalentnetwork.com  
+(703) 258-3362 Ext.1138
+
+
 
 ### Mondo
 Angela Dehn  
