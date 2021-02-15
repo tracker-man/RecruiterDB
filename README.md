@@ -19,6 +19,29 @@ Softworld, Inc.
 Office: 781-833-0233 | Toll Free: 877-899-1166 ext. 233  
 www.softworldinc.com  
 
+### Caribou Thunder
+Sarah Kemmits  
+Recruiting Assistant  
+Caribou Thunder  
+White Earth Reservation  
+O: 715-558-7172  
+sarah.kemmits@caribouthunder.com  
+www.caribouthunder.com
+
+### Artech LLC
+Lona DN  
+Associate Recruiter  
+Office: 973-933-4071  
+Email: Lona.DN@artech.com  
+360 Mt. Kemble Avenue, Suite 2000, Morristown, NJ 07960  
+Website: www.artech.com  
+
+### Links Technology Solutions
+Amber Boytis
+Sr. Technical Recruiter  
+aboytis@linkstechnology.com  
+P: (858) 203-9511  
+
 
 ### E-Talent Network
 Terry Dean  
