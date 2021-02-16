@@ -144,12 +144,8 @@ USA • India • Canada
 Jade Buchanan  
 Technical Recruiter  
 Knight Federal Solutions  
-Website: www.knightfederal.com
+Website: www.knightfederal.com  
 Email: jbuchanan@knightfederal.com  
 Phone: 407-720-7314  
 Address: 11486 Corporate Blvd.  Suite 151  
-
-
- 
-
 Orlando, FL 32817
