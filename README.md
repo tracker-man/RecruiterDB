@@ -79,6 +79,14 @@ Mclean,VA
 hazels@etalentnetwork.com  
 (703) 258-3362 Ext.1138
 
+RishiShorey  
+E Talent Network  
+http://etalentnetwork.com  
+8251 Greensboro Drive
+Mclean VA  
+rishis@etalentnetwork.com
+(703) 373-7340  
+
 
 
 ### Mondo
@@ -131,3 +139,17 @@ Indotronix
 Talent Delivered.  | iic.com  
 Global Headquarters:  687 Lee Road, Suite 250, Rochester, NY 14606  
 USA • India • Canada  
+
+### Knight Federal Solutions
+Jade Buchanan  
+Technical Recruiter  
+Knight Federal Solutions  
+Website: www.knightfederal.com
+Email: jbuchanan@knightfederal.com  
+Phone: 407-720-7314  
+Address: 11486 Corporate Blvd.  Suite 151  
+
+
+ 
+
+Orlando, FL 32817
