@@ -1,29 +1,14 @@
 # RecruiterDB
 ## Keeping track recruiter contact
 
+### Artech LLC
+Lona DN  
+Associate Recruiter  
+Office: 973-933-4071  
+Email: Lona.DN@artech.com  
+360 Mt. Kemble Avenue, Suite 2000, Morristown, NJ 07960  
+Website: www.artech.com  
 
-### U.S. Information Technologies  
-Jere Keener  
-Recruiting Manager  
-U.S. Information Technologies    
-JKeener@usinfotech.com  
-Chantilly, Virginia 20151    
-www.usinfotech.com   
-Office: 703-543-8800 ext 104
-
-### Harmonia Holdings Group LLC
-Aekta Jain  
-Technical Recruiter  
-Harmonia Holdings Group  
-571-599-8494
-
-### Softworld, Inc.
-Andrew Jones  
-Delivery Manager  
-Softworld, Inc.   
-281 Winter St., Suite 301, Waltham, MA 02451  
-Office: 781-833-0233 | Toll Free: 877-899-1166 ext. 233  
-www.softworldinc.com  
 
 ### Caribou Thunder
 Sarah Kemmits  
@@ -33,20 +18,6 @@ White Earth Reservation
 O: 715-558-7172  
 sarah.kemmits@caribouthunder.com  
 www.caribouthunder.com
-
-### Artech LLC
-Lona DN  
-Associate Recruiter  
-Office: 973-933-4071  
-Email: Lona.DN@artech.com  
-360 Mt. Kemble Avenue, Suite 2000, Morristown, NJ 07960  
-Website: www.artech.com  
-
-### Links Technology Solutions
-Amber Boytis
-Sr. Technical Recruiter  
-aboytis@linkstechnology.com  
-P: (858) 203-9511  
 
 
 ### E-Talent Network
@@ -89,6 +60,42 @@ rishis@etalentnetwork.com
 
 
 
+### U.S. Information Technologies  
+Jere Keener  
+Recruiting Manager  
+U.S. Information Technologies    
+JKeener@usinfotech.com  
+Chantilly, Virginia 20151    
+www.usinfotech.com   
+Office: 703-543-8800 ext 104
+
+### Harmonia Holdings Group LLC
+Aekta Jain  
+Technical Recruiter  
+Harmonia Holdings Group  
+571-599-8494
+
+### Softworld, Inc.
+Andrew Jones  
+Delivery Manager  
+Softworld, Inc.   
+281 Winter St., Suite 301, Waltham, MA 02451  
+Office: 781-833-0233 | Toll Free: 877-899-1166 ext. 233  
+www.softworldinc.com  
+
+
+
+
+### Links Technology Solutions
+Amber Boytis
+Sr. Technical Recruiter  
+aboytis@linkstechnology.com  
+P: (858) 203-9511  
+
+
+
+
+
 ### Mondo
 Angela Dehn  
 Phone: (202) 218-0061 Ext.380061  
@@ -104,6 +111,12 @@ himanshu.s@e-solutionsinc.com
 LinkedIn: https://www.linkedin.com/in/himanshu-s-5992b9141/  
 www.e-solutionsinc.com   
 San Jose, California 95113  
+
+Manish Kumar
+P: 408-708-9107  
+E: manish.k@e-solutionsinc.com  
+2N Market St, Suite # 400, San Jose, CA- 95113  
+www.e-solutionsinc.com  
 
 
 ### ITBrainiac, Inc.  
@@ -151,10 +164,4 @@ Address: 11486 Corporate Blvd.  Suite 151
 Orlando, FL 32817
 
 
-### E-Solutions Inc   
-Manish Kumar
-P: 408-708-9107  
-E: manish.k@e-solutionsinc.com  
-2N Market St, Suite # 400, San Jose, CA- 95113  
-www.e-solutionsinc.com  
 
