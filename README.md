@@ -72,7 +72,14 @@ http://etalentnetwork.com
 8251 Greensboro Drive Suite 250
 Mclean,VA  
 hazels@etalentnetwork.com  
-(703) 258-3362 Ext.1138
+(703) 258-3362 Ext.1138  
+
+Jagandeep Kour  
+E TalentNetwork  
+http://etalentnetwork.com  
+8 THE GREEN SUITE A  
+jagandeepk@etalentnetwork.com  
+703-258-3362
 
 RishiShorey  
 E Talent Network  
