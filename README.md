@@ -9,6 +9,7 @@ Email: Lona.DN@artech.com
 360 Mt. Kemble Avenue, Suite 2000, Morristown, NJ 07960  
 Website: www.artech.com  
 
+## Artech
 Shekhar Mohanta  
 (973)-933-4906  
 Shekhar.Mohanta@artech.com
@@ -20,8 +21,10 @@ Recruiting Assistant
 Caribou Thunder  
 White Earth Reservation  
 O: 715-558-7172  
+C: 719.650.0134  
 sarah.kemmits@caribouthunder.com  
 www.caribouthunder.com
+
 
 
 ### E-Solutions Inc
@@ -94,6 +97,12 @@ rishis@etalentnetwork.com
 (703) 373-7340  
 
 
+### Ektello
+Patrick Andrews  
+Recruiter  
+248 590-7854  
+patrick.andrews@ektello.com  
+www.ektello.com
 
 
 ### Exarca Inc.
@@ -208,6 +217,14 @@ Suraj Kumar
 suraj.kumar@sibitalent.com  
 
 
+### Sibitalent Corp  
+Rahul Thakur  
+rahul.thakur@sibitalent.com  
+Sibitalent Corp  
+101 E. Park Blvd., Suite 600  
+Plano, TX – 75074  
+www.sibitalent.com
+
 
 ### U.S. Information Technologies  
 Jere Keener  
@@ -217,6 +234,14 @@ JKeener@usinfotech.com
 Chantilly, Virginia 20151    
 www.usinfotech.com   
 Office: 703-543-8800 ext 104
+
+### West 4th Strategy
+Michael  
+Senior Recruiter  
+West 4th Strategy, LLC  
+Email: michael@west4thstrategy.com  
+Phone: 703.899.5248  
+Fax: 703.552.2917
 
 ### Zolon Tech
 Shiva Sai  
