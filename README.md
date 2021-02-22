@@ -51,12 +51,12 @@ McLean, VA
 patricem@etalentnetwork.com  
 (703) 261-7028 Ext.241
 
-JeremyWilliams
-E TalentNetwork
-http://etalentnetwork.com
-8251 Greensboro Drive Suite 250
-McLeanVA
-jeremyw@etalentnetwork.com
+Jeremy Williams  
+E TalentNetwork  
+http://etalentnetwork.com  
+8251 Greensboro Drive Suite 250  
+McLeanVA  
+jeremyw@etalentnetwork.com  
 703-261-7028 Ext.242
 
 Nicholas Johnson  
