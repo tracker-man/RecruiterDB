@@ -15,6 +15,7 @@ Shekhar Mohanta
 Shekhar.Mohanta@artech.com
 
 
+
 ### Caribou Thunder
 Sarah Kemmits  
 Recruiting Assistant  
@@ -232,6 +233,12 @@ Sibitalent Corp
 Plano, TX – 75074  
 www.sibitalent.com
 
+### Sysinfytech
+Scott Parker  
+Sysinfytech  
+Email: scott@sysinfytech.com  
+Phone: : (703) 468-1245 Ext: 505
+
 
 ### U.S. Information Technologies  
 Jere Keener  
@@ -240,7 +247,17 @@ U.S. Information Technologies
 JKeener@usinfotech.com  
 Chantilly, Virginia 20151    
 www.usinfotech.com   
-Office: 703-543-8800 ext 104
+Office: 703-543-8800 ext 104  
+
+## USM Systems Inc  
+Sujata Dangol  
+Account Manager  
+Email: sujatad@usmsystems.com  
+Ph:703 263 0855 Ext 318  
+USM Systems Inc  
+14175 Sullyfield Circle,  
+Ste# 400, Chantilly, VA20151  
+www.usmsystems.com
 
 ### West 4th Strategy
 Michael  
