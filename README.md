@@ -122,6 +122,15 @@ T: 469-484-6866
 E: vibhay.rana@exarcainc.com  
 W: www.exarcainc.com  
 
+### First Tek, Inc. 
+Jayanthi Chauhan  
+Senior Executive-Talent Acquisition  
+First Tek, Inc.  
+Phone: 425-608-0087  
+www.first-tek.com  
+Jayanthi.chauhan@first-tek.com  
+1551 S Washington Avenue, Suite 402 A, Piscataway, NJ 08854  
+
 
 ### GCS USA Federal   
 Josh   
