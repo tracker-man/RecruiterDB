@@ -106,6 +106,14 @@ Mclean VA
 rishis@etalentnetwork.com
 (703) 373-7340  
 
+ShivamM ahajan
+E TalentNetwork
+http://etalentnetwork.com
+8251 Greensboro Drive, Suite 250
+McleanVA
+shivamm@etalentnetwork.com
+703.258.3362 Ext.319
+
 
 ### Ektello
 Patrick Andrews  
@@ -227,6 +235,15 @@ Phone: (202) 218-0061 Ext.380061
 Email: angela.dehn@mondo.com  
 Website: mondo.com
 Address: 3000 Wilson Blvd # 320 Arlington VA 22201  
+
+
+### Paragone Solutions, Inc 
+Karisa Harris  
+Sr. Talent Specialist  
+Paragone Solutions, Inc  
+kharris@paragone.us  
+703.539.0320  
+571.207.9426  
 
 ### Softworld, Inc.
 Andrew Jones  
