@@ -83,6 +83,15 @@ http://etalentnetwork.com
 Nicholasj@etalentnetwork.com  
 703-687-6627 Ext.307  
 
+Yuvraj Kumar  
+Sr. Technical Recruiter  
+ETalentNetwork  
+8251 Greensboro Drive McLean, VA 22102  
+Desk: 703.261.7028 Ext: 347  
+Direct: (571) 778-5818  
+Website - www.tscti.com  
+  
+  
 Hazel Smith  
 E Talent Network  
 http://etalentnetwork.com  
