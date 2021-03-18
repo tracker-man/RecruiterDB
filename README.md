@@ -121,7 +121,12 @@ http://etalentnetwork.com
 8251 Greensboro Drive, Suite 250
 McleanVA
 shivamm@etalentnetwork.com
-703.258.3362 Ext.319
+703.258.3362 Ext.319  
+
+Manpreet Singh (Manny)  
+Federal Recruitments  
+C: 304-306-9386  
+Email: manpreetsi@etalentnetwork.com  
 
 
 ### Ektello
