@@ -115,12 +115,12 @@ Mclean VA
 rishis@etalentnetwork.com
 (703) 373-7340  
 
-ShivamM ahajan
-E TalentNetwork
-http://etalentnetwork.com
-8251 Greensboro Drive, Suite 250
-McleanVA
-shivamm@etalentnetwork.com
+ShivamM ahajan  
+E TalentNetwork  
+http://etalentnetwork.com  
+8251 Greensboro Drive, Suite 250  
+McleanVA  
+shivamm@etalentnetwork.com  
 703.258.3362 Ext.319  
 
 Manpreet Singh (Manny)  
