@@ -333,7 +333,17 @@ Technical Recruiter
 571-247-2752  
 michael@smart-synergies.com  
 20130 Lake View Center Plaza, Ste 400  
-Ashburn, VA 20147
+Ashburn, VA 20147  
+
+
+### Sunrise Systems Inc.
+Jani. S  
+Team Lead Recruitment  
+105 Fieldcrest Ave Suite# 504, Edison, NJ 08837 USA  
+Desk: 732-837-0402  
+Fax: 732-692-8944  
+Email: jani.s@sunrisesys.com  
+URL: www.sunrisesys.com  
 
 
 ### U.S. Information Technologies  
