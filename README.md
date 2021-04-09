@@ -35,6 +35,14 @@ C: 719.650.0134
 sarah.kemmits@caribouthunder.com  
 www.caribouthunder.com  
 
+### Cogent Infotech Corporation
+Shivam Bishore  
+Sr. Talent Acquisition Specialist  
+P: (412) 212-1136  
+Shivam.bishore@cogentinfo.com  
+Cogent Infotech Corporation  
+1035 Boyce Rd, Pittsburgh, PA, USA 
+
 
 ### Cyber Coders   
 ABI HARPER  
@@ -61,6 +69,22 @@ P: 408-708-9107
 E: manish.k@e-solutionsinc.com  
 2N Market St, Suite # 400, San Jose, CA- 95113  
 www.e-solutionsinc.com  
+
+
+Aditya Koushal  
+Vidhwan Inc DBA E-Solutions  
+2 N. Market St., #400, San Jose, CA, 95113  
+Tel (US): 408-625-7324  
+Fax: 408.521.0167  
+Email: Aditya.k@e-solutionsinc.com  
+www.e-solutionsinc.com  
+
+Tarun Vohra  
+Account Manager  
+P: 408-694-3526  
+Email: tarun.v@e-solutionsinc.com  
+Address: 2N Market St, Suite # 400, San Jose, CA- 95113  
+www.e-solutionsinc.com
 
 
 
