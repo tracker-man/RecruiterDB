@@ -162,6 +162,23 @@ Manpreet Singh (Manny)
 Federal Recruitments  
 C: 304-306-9386  
 Email: manpreetsi@etalentnetwork.com  
+O: (571) 639-4473 ext 1125  
+
+
+
+Ishaan Rana  
+Talent Acquisition Specialist  
+(571)-367-3207 Ext. 1254  
+331-207-6803 Direct  
+Location: Dover DE 19901  
+ishaanr@etalentnetwork.com | W. http://www.etalentnetwork.com  
+https://www.linkedin.com/in/ishaan-rana-595a3a168/  
+
+
+Terry Dean  
+E-Talent Network  
+Direct: 571-639-4473 Ext.384  
+Email: terryd@etalentnetwork.com  
 
 
 ### Ektello
