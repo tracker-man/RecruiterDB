@@ -347,6 +347,16 @@ Softworld, Inc.
 Office: 781-833-0233 | Toll Free: 877-899-1166 ext. 233  
 www.softworldinc.com  
 
+### Softpath System LLC
+Hyder  
+Technical Recruiter  
+Email: hyder@softpath.net  
+Direct: 609-554-8462  
+Work: 404-315-1555 Ext. 658  
+Fax: 678-302-4488  
+Softpath System LLC | 3985 Steve Reynolds Blvd | Bldg C Norcross GA 30093  
+www.softpath.net
+
 
 ### Sibitalent
 Suraj Kumar  
@@ -385,6 +395,11 @@ Desk: 732-837-0402
 Fax: 732-692-8944  
 Email: jani.s@sunrisesys.com  
 URL: www.sunrisesys.com  
+
+
+### SHINE Management  
+Talent Acquisition Team  
+434.322.3000 x347  
 
 
 ### U.S. Information Technologies  
