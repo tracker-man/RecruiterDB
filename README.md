@@ -52,7 +52,15 @@ Abi.Harper@cybercoders.com
 
         
 
-
+### Defense in Depth Solutions  
+Krishna  
+Sr. Recruiter  
+Ph: 281-978-4436  
+E mail: krishna.p@didsolutions.net  
+Defense in Depth Solutions, Inc. Recruiting Partner for CompQsoft  
+161 Fort Evans Road NE, Suite # 225, Leesburg VA 20176  
+Phone: 281-978-4436  
+www.didsolutions.net
 
 
 
@@ -397,9 +405,21 @@ Email: jani.s@sunrisesys.com
 URL: www.sunrisesys.com  
 
 
+
+
+
 ### SHINE Management  
 Talent Acquisition Team  
 434.322.3000 x347  
+
+
+### TekSystems
+Anna Culpepper  
+Technical Recruiter  
+T 919.760.1980  
+M 252.202.9018  
+aculpepper@teksystems.com  
+5440 Wade Park Blvd, Suite #300, Raleigh NC, 27607 
 
 
 ### U.S. Information Technologies  
