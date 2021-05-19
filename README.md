@@ -132,6 +132,13 @@ http://etalentnetwork.com
 Nicholasj@etalentnetwork.com  
 703-687-6627 Ext.307  
 
+Emma Jackson  
+E TalentNetwork  
+http://etalentnetwork.com  
+zoeyw@etalentnetwork.com  
+M - 732-654-7606  
+Desk - 571-367-3209, Ext - 267
+
 Yuvraj Kumar  
 Sr. Technical Recruiter  
 ETalentNetwork  
@@ -193,6 +200,13 @@ Terry Dean
 E-Talent Network  
 Direct: 571-639-4473 Ext.384  
 Email: terryd@etalentnetwork.com  
+
+### eTeam Inc.
+Shubham Vishnoi  
+Senior Technical Recruiter  
+eTeam Inc.  
+svishnoi@eteaminc.com  
+(732) 961-5625
 
 
 ### Ektello
@@ -352,6 +366,26 @@ Robert Half Technology
 direct line: 984.900.8052  
 phone 919.782.5111 ex. 55634  
 
+### Quantum World Technologies Inc.
+Sr.Technical Recruiter  
+www.quantumworld.us  
+Office: 805-222-0532 Ext-331  
+Email : Alok@quantumworld.us
+Direct : 805-724-5773  
+Linkdin: linkedin.com/in/alok-pandey-70b113166
+Fax: 805-834-0532  
+  
+Vaibhav Mishra  
+Sr. Technical Recruiter  
+Quantum World Technologies Inc.  
+199 W Hillcrest Dr, Suite#0112, Thousand Oaks, CA 91360  
+www.quantumworld.us  
+Mail: Vaibhav.mishra@quantumworld.us  
+Direct - (346) 260-4387  
+Office: 805-222-0532 Ext-218  
+Fax : 805-834-0532  
+LinkedIn: https://www.linkedin.com/in/vaibhav-mishra-039917108/
+
 
 ### Softworld, Inc.
 Andrew Jones  
@@ -430,8 +464,14 @@ aculpepper@teksystems.com
 Caroline Patella  
 IT Recruiter at TEKsystems  
 (919) 760-4315  
-cpatella@teksystems.com
+cpatella@teksystems.com  
 
+
+### Trexin Consulting
+Dan Hoffman  
+Recruiting at Trexin Consulting  
+Dan.hoffman@trexin.com  
+773-251-7990
 
 
 ### U.S. Information Technologies  
@@ -458,7 +498,14 @@ Devendra Yadav
 Senior Technical Recruiter  
 Phone: 614-495-9222 Ext.465  
 Fax: 866-764-1148  
-Email:  Devendra.y@usgrpinc.com
+Email:  Devendra.y@usgrpinc.com  
+
+
+### Visionisys Inc
+Victor Ross  
+Ph: 901-245-5816  
+Email : victor@visionisys.com  
+www.visionisys.com
 
 ### West 4th Strategy
 Michael  
