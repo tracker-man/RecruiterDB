@@ -425,7 +425,13 @@ Technical Recruiter
 T 919.760.1980  
 M 252.202.9018  
 aculpepper@teksystems.com  
-5440 Wade Park Blvd, Suite #300, Raleigh NC, 27607 
+5440 Wade Park Blvd, Suite #300, Raleigh NC, 27607  
+
+Caroline Patella  
+IT Recruiter at TEKsystems  
+(919) 760-4315  
+cpatella@teksystems.com
+
 
 
 ### U.S. Information Technologies  
