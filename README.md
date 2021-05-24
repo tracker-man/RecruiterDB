@@ -98,6 +98,12 @@ Account Manager
 P: 408-694-3526  
 Email: tarun.v@e-solutionsinc.com  
 Address: 2N Market St, Suite # 400, San Jose, CA- 95113  
+www.e-solutionsinc.com  
+
+Ajay Verma  
+Sr. Recruiter  
+P:408-625-7705  
+E: ajay.v@e-solutionsinc.com  
 www.e-solutionsinc.com
 
 
