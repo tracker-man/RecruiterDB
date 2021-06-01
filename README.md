@@ -263,7 +263,14 @@ www.GeorgiaIT.com
 Aekta Jain  
 Technical Recruiter  
 Harmonia Holdings Group  
-571-599-8494
+571-599-8494  
+
+### Hays 
+Nathan Dalton  
+Associate Technical Recruiter  
+Recruiting experts in IT  
+T: 407-785-7799  
+E: Nathan.Dalton@hays.com  
 
 
 ### Indotronix  
@@ -390,7 +397,20 @@ Mail: Vaibhav.mishra@quantumworld.us
 Direct - (346) 260-4387  
 Office: 805-222-0532 Ext-218  
 Fax : 805-834-0532  
-LinkedIn: https://www.linkedin.com/in/vaibhav-mishra-039917108/
+LinkedIn: https://www.linkedin.com/in/vaibhav-mishra-039917108/  
+
+Garima Khandelwal  
+Technical Recruiter  
+Quantum World Technologies Inc.  
+199 W Hillcrest Dr, Suite#0112, Thousand Oaks, CA 91360  
+Office: 805-222-0532 Ext-194  
+Phone: 917-636-4793  
+   
+Ishat Hussain  
+Technical Recruiter  
+Phone: 315-740-4759  
+Fax : 805-834-0532  
+E: ishat@quantumworld.us  
 
 
 ### Softworld, Inc.
@@ -505,6 +525,15 @@ Senior Technical Recruiter
 Phone: 614-495-9222 Ext.465  
 Fax: 866-764-1148  
 Email:  Devendra.y@usgrpinc.com  
+
+### USTECH Solutions, Inc.   
+10 Exchange Place; Suite 1820  
+Jersey City NJ 07302  
+Email: kapil@ustechsolutions.com  
+Phone: (201) 549-2721  
+www.ustechsolutions.com  
+
+
 
 
 ### Visionisys Inc
