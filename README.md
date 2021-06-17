@@ -104,7 +104,24 @@ Ajay Verma
 Sr. Recruiter  
 P:408-625-7705  
 E: ajay.v@e-solutionsinc.com  
-www.e-solutionsinc.com
+www.e-solutionsinc.com   
+
+Priyanshu Srivastav  
+Direct (Desk): 408-689-2264  
+priyanshu.s@e-solutionsinc.com  
+LinkedIn: https://www.linkedin.com/in/priyanshu-srivastav-5813aa171/  
+Google Hangout: prisri828@gmail.com  
+Skype:  prisri828@gmail.com  
+www.e-solutionsinc.com  
+
+
+Avinash Kumar Suman  
+Sr. Technical Recruiter  
+P: 408-863-1114  
+E: Avinash.K@e-solutionsinc.com  
+www.e-solutionsinc.com  
+https://www.linkedin.com/in/avinash-k-suman-b4402b1bb/
+
 
 
 
