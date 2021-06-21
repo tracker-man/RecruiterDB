@@ -247,6 +247,15 @@ T: 469-484-6866
 E: vibhay.rana@exarcainc.com  
 W: www.exarcainc.com  
 
+
+### Element6talent
+NCIUA / NCJUA  
+Talent Strategy Consultant  
+414-688-9771  
+akrueger@element6talent.com  
+Aaron Krueger  
+
+
 ### First Tek, Inc. 
 Jayanthi Chauhan  
 Senior Executive-Talent Acquisition  
@@ -288,6 +297,11 @@ Associate Technical Recruiter
 Recruiting experts in IT  
 T: 407-785-7799  
 E: Nathan.Dalton@hays.com  
+
+### Hire Well
+Zach Hilbun  
+Tech Recruiter  
+zhilbun@hirewell.com  
 
 
 ### Indotronix  
