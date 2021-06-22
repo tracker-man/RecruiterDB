@@ -229,7 +229,14 @@ Shubham Vishnoi
 Senior Technical Recruiter  
 eTeam Inc.  
 svishnoi@eteaminc.com  
-(732) 961-5625
+(732) 961-5625  
+
+### Entegee
+Jay Barrett  
+Sr Technical Recruiter  
+Entegee
+978-313-2885
+jason.barrett@entegee.com
 
 
 ### Ektello
