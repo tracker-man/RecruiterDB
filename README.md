@@ -531,6 +531,11 @@ IT Recruiter at TEKsystems
 cpatella@teksystems.com  
 
 
+Angie King  
+980-233-6329  
+DevOps Recruiter  
+
+
 ### Trexin Consulting
 Dan Hoffman  
 Recruiting at Trexin Consulting  
